@@ -14,8 +14,8 @@ fachas como mi amigo antonio...
 y comunistas como Ronaldinho Gaucho...
 
 
-### Autor: 
-
+### Autor: Antonio Cordero Serrano
+Mientras buscaban al Agustin que llegaba tarde como siempre
 
 ### Autor: 
 
