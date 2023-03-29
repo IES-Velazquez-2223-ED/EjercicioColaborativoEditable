@@ -10,7 +10,8 @@ visitar al gran monarca chino, y les dijó  dale un pez a un hombre y comerá un
 fachas como mi amigo antonio...
 
 
-### Autor: 
+### Autor: Daniel Gonzalez Alcaide
+y comunistas como Ronaldinho Gaucho...
 
 
 ### Autor: 
