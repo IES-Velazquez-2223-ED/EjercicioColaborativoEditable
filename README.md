@@ -22,8 +22,8 @@ Mientras buscaban al Agustin que llegaba tarde como siempre
 Una vez que apareció Agustín, Galán apareció y se compró una monster
 en la tienda de la china 
 
-### Autor: 
-
+### Autor: Jose Antonio Galan Miranda
+Y Ricardo esperaba bailando twerking con drill de fondo...
 
 ### Autor:
 
