@@ -29,8 +29,8 @@ Y Ricardo esperaba bailando twerking con drill de fondo...
 ### Autor: Oscar Márquez Moya
 hasta que se torció un tobillo y causó baja en el equipo de Tagua. 
 
-### Autor: 
-
+### Autor: Vicente Marín Suazo
+Y se fue expulsado por encontrarle droga en la mochila
 
 ### Autor: 
 
