@@ -25,8 +25,8 @@ en la tienda de la china
 ### Autor: Jose Antonio Galan Miranda
 Y Ricardo esperaba bailando twerking con drill de fondo...
 
-### Autor:
-
+### Autor: Oscar Márquez Moya
+hasta que se torció un tobillo y causó baja en el equipo de Tagua. 
 
 ### Autor: 
 
