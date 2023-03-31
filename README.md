@@ -17,6 +17,7 @@ y comunistas como Ronaldinho Gaucho...
 ### Autor: Antonio Cordero Serrano
 Mientras buscaban al Agustin que llegaba tarde como siempre
 
+### Autor: 
 
 ### Autor: Adrian Perez Blanco
 Una vez que apareció Agustín, Galán apareció y se compró una monster
@@ -46,4 +47,4 @@ Y Ricardo esperaba bailando twerking con drill de fondo...
 ### Autor:
 
 
-### Autor: 
+### Autor:
