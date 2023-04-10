@@ -17,8 +17,6 @@ y comunistas como Ronaldinho Gaucho...
 ### Autor: Antonio Cordero Serrano
 Mientras buscaban al Agustin que llegaba tarde como siempre
 
-### Autor: 
-
 ### Autor: Adrian Perez Blanco
 Una vez que apareció Agustín, Galán apareció y se compró una monster
 en la tienda de la china 
@@ -33,7 +31,7 @@ hasta que se torció un tobillo y causó baja en el equipo de Tagua.
 Y se fue expulsado por encontrarle droga en la mochila
 
 ### Autor: 
-
+Mientras vociferaba: ¡No es mía!¡No es mía!...
 
 ### Autor: 
 
