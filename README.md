@@ -30,7 +30,7 @@ hasta que se torció un tobillo y causó baja en el equipo de Tagua.
 ### Autor: Vicente Marín Suazo
 Y se fue expulsado por encontrarle droga en la mochila
 
-### Autor: 
+### Autor: Adrián Remedio del Moral
 Mientras vociferaba: ¡No es mía!¡No es mía!...
 
 ### Autor: 
