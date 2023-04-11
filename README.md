@@ -36,8 +36,8 @@ Mientras vociferaba: ¡No es mía!¡No es mía!...
 ### Autor: Marco A. Sanchez Garcia
 Y Andrew lo salvó con su descomunal fuerza...
 
-### Autor: 
-
+### Autor: Irene Osuna Delgado
+Y lo lanzó de nuevo a clase...
 
 ### Autor: 
 
