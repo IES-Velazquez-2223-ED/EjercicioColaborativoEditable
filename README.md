@@ -40,7 +40,7 @@ Y Andrew lo salvó con su descomunal fuerza...
 Y lo lanzó de nuevo a clase...
 
 ### Autor: 
-
+Y colorín colorado este cuento se ha acabado.
 
 ### Autor:
 
