@@ -33,8 +33,8 @@ Y se fue expulsado por encontrarle droga en la mochila
 ### Autor: Adrián Remedio del Moral
 Mientras vociferaba: ¡No es mía!¡No es mía!...
 
-### Autor: 
-
+### Autor: Marco A. Sanchez Garcia
+Y Andrew lo salvó con su descomunal fuerza...
 
 ### Autor: 
 
