@@ -39,7 +39,7 @@ Y Andrew lo salvó con su descomunal fuerza...
 ### Autor: Irene Osuna Delgado
 Y lo lanzó de nuevo a clase...
 
-### Autor: 
+### Autor: Agustin Sanchez
 Y colorín colorado este cuento se ha acabado.
 
 ### Autor:
